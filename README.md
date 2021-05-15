@@ -4,4 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-FIND OUT ON THE NEXT EPISODE OF DRAGON BALL Z!!!!!!!
+Find out on the next episode of
+### DRAGON
+### BALL
+### Z!
